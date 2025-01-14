@@ -12,10 +12,10 @@ We offer both in-shop repairs and mobile mechanic services, making it easier tha
 ## Our Services
 
 
--**Routine Maintenance**: Oil changes, brake checks, tire rotations, and more.
--**Mobile Mechanic Services**: We come to you for convenience and flexibility.
--**Expert Car Repairs**: Handling all types of mechanical and electrical issues.
--**Custom Rebuilds**: Whether it's an engine rebuild or a full restoration project.
+- **Routine Maintenance**: Oil changes, brake checks, tire rotations, and more.
+- **Mobile Mechanic Services**: We come to you for convenience and flexibility.
+- **Expert Car Repairs**: Handling all types of mechanical and electrical issues.
+- **Custom Rebuilds**: Whether it's an engine rebuild or a full restoration project.
 
 
 ## Get in Touch
