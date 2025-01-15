@@ -23,7 +23,7 @@ We offer both in-shop repairs and mobile mechanic services, making it easier tha
 For inquiries or to schedule a service, you can reach us through the following:
 
 - **Email**: [foxmfagundes@mechanicalfoxs.com](foxmfagundes@mechanicalfoxs.com)
-- **Phone**: (123) 456-7890
+- **Phone**: (714)-719-6129
 - **Website**: [[https://mechanicalfoxs.com/](https://mechanicalfoxs.com/)]
 
 Feel free to contact us with any questions or to get a free over the phone quote!
