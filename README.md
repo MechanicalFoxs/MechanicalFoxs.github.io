@@ -25,6 +25,6 @@ For inquiries or to schedule a service, you can reach us through the following:
 
 - **Email**: [foxmfagundes@mechanicalfoxs.com](foxmfagundes@mechanicalfoxs.com)
 - **Phone**: (714)-719-6129
-- **Website**: [[https://mechanicalfoxs.com/](https://mechanicalfoxs.com/)]
+- **Instagram**: [(https://www.instagram.com/mechanicalfoxs/)(https://www.instagram.com/mechanicalfoxs/))]
 
 Feel free to contact us with any questions or to get a free over the phone quote!
